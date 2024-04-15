@@ -4,4 +4,4 @@
 - Họ và tên: Tống Hữu Tiến
 - MSSV: 2011068747
 - Lớp: 20DTHC3
-![quyết tâm qua môn](https://icdn.dantri.com.vn/a43eb5ece6/2018/11/01/img20181101110921637-8a952.png)
+![quyết tâm qua môn](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQbYvEf2EfqqWdXr6XaejdOGuyJrpzl2YbaZQZ4867ACQ&s)
